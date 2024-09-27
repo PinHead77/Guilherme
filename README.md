@@ -1,1 +1,7 @@
-# Boa pá nois, aqui quem ta falando é o Jalima Mei, tenho 109 anos, e estou aqui com o objetivo de trazer alegria para vós todos.
+# **Boa pá nois** #
+# aqui quem tá falando é o Jalim Mamei
+# e eu estou aqui
+# para vós trazer alegria
+
+
+
